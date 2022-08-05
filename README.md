@@ -1,2 +1,1 @@
-# repoejemplo1
-HOLA ANDI COMO ESTAS
+Hol  Clau!  hagamos pagina para tu sobri!!!
